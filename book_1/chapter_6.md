@@ -1,17 +1,15 @@
 ## Chapter 6
-### THE JOURNEY FROM PLATFORM NINE AND THREE-QUARTERS
-Harry's last month with the Dursleys wasn't fun. True, Dudley was now so
-scared of Harry he wouldn't stay in the same room, while Aunt Petunia
-and Uncle Vernon didn't shut Harry in his cupboard, force him to do
-anything, or shout at him -- in fact, they didn't speak to him at all.
-Half terrified, half furious, they acted as though any chair with Harry
-in it were empty. Although this was an improvement in many ways, it did
-become a bit depressing after a while.
+### THE CHOO-CHOO THAT WAS HIGH-KEY SUS
+Harry's last month in da crib was totally trash. True, Dudley had taken a 
+hard pass on chasing him, and his fam took several seats -- tbh, Harry 
+spent most of his time sitting back and sipping tea. Every time they 
+copped him, they would yeet outa the room like he was the plague. 
+The entire thing was a beige flag, but the ghosting took an L after the first few weeks.
 
 
-Harry kept to his room, with his new owl for company. He had decided to
-call her Hedwig, a name he had found in A History of Magic. His school
-books were very interesting. He lay on his bed reading late into the
+Harry took it as a detox, and hung with his new owl. He named her
+Hedwig, 'cause it gave him major throwback to A History of Magic. His school
+books were full of tea. He lay on his bed reading late into the
 night, Hedwig swooping in and out of the open window as she pleased. It
 was lucky that Aunt Petunia didn't come in to vacuum anymore, because
 Hedwig kept bringing back dead mice. 
