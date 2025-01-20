@@ -3,16 +3,15 @@
 Harry's last month in da crib was totally trash. True, Dudley had taken a 
 hard pass on chasing him, and his fam took several seats -- tbh, Harry 
 spent most of his time sitting back and sipping tea. Every time they 
-copped him, they would yeet outa the room like he was the plague. 
+copped him, they would dash outa the room like he was the plague. 
 The entire thing was a beige flag, but the ghosting took an L after the first few weeks.
 
 
 Harry took it as a detox, and hung with his new owl. He named her
-Hedwig, 'cause it gave him major throwback to A History of Magic. His school
-books were full of tea. He lay on his bed reading late into the
-night, Hedwig swooping in and out of the open window as she pleased. It
-was lucky that Aunt Petunia didn't come in to vacuum anymore, because
-Hedwig kept bringing back dead mice. 
+Hedwig, 'cause it gave him major throwback to A History of Magic, a book he got while shopping. His school
+books were full of tea, tho. He lay on his bed reading late into the
+night, Hedwig yeeting herself in and out of the open window as she pleased.
+All the reading was kind of a brain drain, but Hedwig get bringing back mice, so he was fine.
 
 Every night before he went to sleep, Harry ticked off another day on 
 the piece of paper he had pinned to the wall, counting down to September the first.
