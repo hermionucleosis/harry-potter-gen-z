@@ -11,7 +11,7 @@ Harry took it as a detox, and hung with his new owl. He named her
 Hedwig, 'cause it gave him major throwback to A History of Magic, a book he got while shopping. His school
 books were full of tea, tho. He lay on his bed reading late into the
 night, Hedwig yeeting herself in and out of the open window as she pleased.
-All the reading was kind of a brain drain, but Hedwig get bringing back mice, so he was fine.
+All the reading was kind of a brain drain, but Hedwig kept bringing back mice, so he was fine.
 
 Every night before he went to sleep, Harry ticked off another day on 
 the piece of paper he had pinned to the wall, counting down to September the first.
